@@ -1,3 +1,6 @@
+![White Black Simple Initial Logo (22)](https://user-images.githubusercontent.com/56654391/184502884-159030b5-88b1-457b-ba01-e06dae6ed12d.png)
+![White Black Simple Initial Logo (23)](https://user-images.githubusercontent.com/56654391/184502866-d9dca374-b1a7-4ca3-82d6-9b523df8ae83.png)
+![White Black Simple Initial Logo (24)](https://user-images.githubusercontent.com/56654391/184502860-7b704692-62b4-49ea-a628-d609ff29cc15.png)
 ![Black Modern Personal LinkedIn Banner (1)](https://user-images.githubusercontent.com/56654391/184468514-18c676c2-f230-42d4-92d4-ae2c65d8e490.png)
 ![White Black Simple Initial Logo (8)](https://user-images.githubusercontent.com/56654391/184470876-5b43c67a-74ec-4097-8cd6-194525af1b60.png)
 ![White Black Simple Initial Logo (10)](https://user-images.githubusercontent.com/56654391/184471074-2e8809e3-73f3-4542-b817-4560b6e01892.png)
