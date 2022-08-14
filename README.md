@@ -1,3 +1,5 @@
+![White Black Simple Initial Logo (21)](https://user-images.githubusercontent.com/56654391/184503099-bead91f4-cb5c-4bd4-942b-d8d67b41a9de.png)
+![White Black Simple Initial Logo (25)](https://user-images.githubusercontent.com/56654391/184503073-88eaf236-dbfa-4cb3-b000-8c30d2c2cf97.png)
 ![White Black Simple Initial Logo (22)](https://user-images.githubusercontent.com/56654391/184502884-159030b5-88b1-457b-ba01-e06dae6ed12d.png)
 ![White Black Simple Initial Logo (23)](https://user-images.githubusercontent.com/56654391/184502866-d9dca374-b1a7-4ca3-82d6-9b523df8ae83.png)
 ![White Black Simple Initial Logo (24)](https://user-images.githubusercontent.com/56654391/184502860-7b704692-62b4-49ea-a628-d609ff29cc15.png)
@@ -10,12 +12,20 @@
 ![White Black Simple Initial Logo (15)](https://user-images.githubusercontent.com/56654391/184476575-b9036917-934b-4abf-8e1e-946a339d6b36.png)
 ![White Black Simple Initial Logo (16)](https://user-images.githubusercontent.com/56654391/184476662-42a1766b-308b-40b2-9978-ef4a1c9ab55d.png)
 ![White Black Simple Initial Logo (17)](https://user-images.githubusercontent.com/56654391/184477120-f9427745-0e4d-4419-8301-aada0e2d8643.png)
+![White Black Simple Initial Logo (26)](https://user-images.githubusercontent.com/56654391/184503237-32be0c8d-2a88-4fb1-a922-6afd81847dd5.png)
+![White Black Simple Initial Logo (20)](https://user-images.githubusercontent.com/56654391/184503304-961b7664-f0c1-44fb-bbf0-c38f5ac56499.png)
+![White Black Simple Initial Logo (19)](https://user-images.githubusercontent.com/56654391/184503311-92123c91-af1e-4a49-a50e-f08cb6d46980.png)
+![White Black Simple Initial Logo (18)](https://user-images.githubusercontent.com/56654391/184503316-ee9a4de9-fb13-4aa0-895a-ee0ce6b312c4.png)
+![White Black Simple Initial Logo (18)](https://user-images.githubusercontent.com/56654391/184503319-05e13ec1-5c62-4630-8e39-6e5af718f485.png)
+![White Black Simple Initial Logo (19)](https://user-images.githubusercontent.com/56654391/184503361-ecf412fd-9ddc-47c5-a20e-88595c9fa6bf.png)
+![White Black Simple Initial Logo (20)](https://user-images.githubusercontent.com/56654391/184503398-d626f99b-d451-4ad8-a42e-b9caa7093d09.png)
 
 
 ![White Black Simple Initial Logo (7)](https://user-images.githubusercontent.com/56654391/184470776-73583ae4-5b31-47b9-bc2c-b6e7e8d69dda.png)
 ![White Black Simple Initial Logo (13)](https://user-images.githubusercontent.com/56654391/184471493-0bcf4fcf-d35b-48bd-b2f4-1790ea99b181.png)
 
 ![White Black Simple Initial Logo (6)](https://user-images.githubusercontent.com/56654391/184470714-cadd0189-f59a-422c-a7e5-0c0b01b6d087.png)
+![White Black Simple Initial Logo (21)](https://user-images.githubusercontent.com/56654391/184503088-096c7243-00d0-4532-bcc7-8618ec692f37.png)
 
 
 ![White Black Simple Initial Logo (3)](https://user-images.githubusercontent.com/56654391/184469611-f55aae06-f6c2-4fd7-94ca-8e33c5a46504.png)
